@@ -3,4 +3,4 @@
 
 ### My Stats:
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=beratridvanasilturk&layout=compact&theme=vision-friendly-dark)](https://github.com/anuraghazra/github-readme-stats)
- ______ [![GitHub Streak](https://github-readme-streak-stats.herokuapp.com?user=beratridvanasilturk&theme=dark&mode=weekly)](https://git.io/streak-stats)
+ ___ [![GitHub Streak](https://github-readme-streak-stats.herokuapp.com?user=beratridvanasilturk&theme=dark&mode=weekly)](https://git.io/streak-stats)
