@@ -1,5 +1,5 @@
-![github-header-image kopyası 6](https://github.com/beratridvanasilturk/beratridvanasilturk/assets/99040236/5c1318cd-6ff5-4fe8-b9a7-788295db1002)
 
+![github-header-image kopyası 7](https://github.com/beratridvanasilturk/beratridvanasilturk/assets/99040236/7e4e773d-93f2-4200-8471-36f0d138ce0e)
 
 <!--
 **beratridvanasilturk/beratridvanasilturk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
