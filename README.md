@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Odibee+Sans&size=35&duration=3000&pause=100&color=FFFFFF&repeat=false&width=435&lines=Hey+you+!;I'm+Berat+Ridvan+Asilturk..;..an+iOS+Developer+;Let's+eat%2C+sleep+and+more+coding..;..and+more+smile.+%E3%83%83;We+can+do+that+mate+!+%F0%9F%A4%9C%F0%9F%8F%BB%F0%9F%A4%9B%F0%9F%8F%BB;Isn't+it%3F+)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Odibee+Sans&size=35&duration=3000&pause=100&color=FFFFFF&repeat=false&width=435&lines=Hey+you+!;I'm+Berat+Ridvan..;..an+iOS+Developer+;Let's+eat%2C+sleep+and+more+coding..;..and+more+smile.+%E3%83%83;We+can+do+that+mate+!+%F0%9F%A4%9C%F0%9F%8F%BB%F0%9F%A4%9B%F0%9F%8F%BB;Right%3F+)](https://git.io/typing-svg)
 ![github-header-image kopyası 7](https://github.com/beratridvanasilturk/beratridvanasilturk/assets/99040236/e0bad5c5-ccdb-4b48-b711-8e2d0e0033b6)
 
 ### My Stats:
