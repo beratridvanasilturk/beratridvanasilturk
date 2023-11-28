@@ -1,5 +1,6 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Odibee+Sans&size=35&duration=3000&pause=100&color=5A5A5A&repeat=false&width=435&lines=Hey+you+!;I'm+Berat+Ridvan..;..an+iOS+Developer+;Let's+eat%2C+sleep+and+more+coding..;..and+more+smile.+%E3%83%83;We+can+do+that+mate+!+%F0%9F%A4%9C%F0%9F%8F%BB%F0%9F%A4%9B%F0%9F%8F%BB;Right%3F+)](https://git.io/typing-svg)
-![tttt](https://github.com/beratridvanasilturk/beratridvanasilturk/assets/99040236/71fedef3-eb2c-40ee-856f-b0a0bb448261)
+![tttt kopyası](https://github.com/beratridvanasilturk/beratridvanasilturk/assets/99040236/3fb4c869-77d6-4bd0-8140-1315b2995589)
+
 
 
 
